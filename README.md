@@ -1,1 +1,0 @@
-# ManualCalcu-Project-1
